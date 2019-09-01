@@ -1,1 +1,55 @@
 # photos
+
+## trips, adventures
+
+- [Iain--Johanna wedding ceilidh 2019-07-06](https://photos.app.goo.gl/T9M433qN22WoK43C7)
+- [University of Glasgow Gilbert Scott Building tower 2019-06-13](https://photos.app.goo.gl/QhMiGnjKYtjYxcVe6)
+- [Vaasa 2018](https://photos.app.goo.gl/KSsF8Cy42kC8PcDz5)
+- [Leuven 2018](https://photos.app.goo.gl/gtuh5hbfDjMuGbo36)
+- [Science March Edinburgh 2017-04-22](https://goo.gl/photos/o2aQuFVE7RiUp7m37)
+- [Glasgow Fuck Trump 2017-01-30](https://goo.gl/photos/xNrya4o53Qu44yS37)
+- [Amsterdam 2016-11-03--2016-11-07](https://goo.gl/photos/KuHyUTNb8gRx3LV88)
+
+### CERN LTA
+
+- [Saint-Genis-Pouilly sleepover 2016-10-15](https://photos.app.goo.gl/WwtMR8rxxA6fnRGP9) (CERN LTA)
+- [Annecy 2016-09-25](https://photos.app.goo.gl/cqczTDxGCXM6nd6z9) (CERN LTA)
+- [Geneva collective competency jar 2016-09-10](https://photos.app.goo.gl/DnxqRUJ536yQNq9E8) (CERN LTA)
+- [Annecy 2016-07-24](https://photos.app.goo.gl/jn1Se4UtY7bCTqih7) (CERN LTA)
+- [Montreux acid jazz 2016-07-16](https://photos.app.goo.gl/Jbvxgapzd9BBgjPM9) (CERN LTA)
+- [Crêt de la Neige 2016-07-03](https://photos.app.goo.gl/Y5qqjHVskQZuyNXaA) (CERN LTA)
+- [1P-LSD adventure 2016-06-18](https://photos.app.goo.gl/oZPPEsLzSqyZk8LZ9) (CERN LTA)
+- [Fête de l'oiseau 2016](https://photos.app.goo.gl/FT76urDvBK5ztkzcA) (CERN LTA)
+- [Caves Ouverte 2016](https://photos.app.goo.gl/NUG22vNfFsSK1aab6) (CERN LTA)
+- [Annecy 2015-11-07](https://photos.app.goo.gl/VGscFN4Q9bL9AFWE6) (CERN LTA)
+
+### General Solutions
+
+- [General Solutions Marketing Material](https://photos.app.goo.gl/6BGChd7RFfs3m5387)
+
+---
+
+## other
+
+- [interfaces](https://photos.google.com/share/AF1QipPuU8tHwHXU6szj_Mwk-HG5swqaXKQpAHkzWu2JMZaCyeIN66cr1HciL7h7pQgpYw?key=MlkyZi11bFJyY3RfMXVEbXl3ckF5VFBfa01TY0Z3)
+
+---
+
+## general daily stuff
+
+- [transient_2019](https://photos.app.goo.gl/UXyChAJdT7Thy9619)
+- [transient_2018](https://photos.app.goo.gl/nNd9hiwGz5CF1T6X9)
+- [transient_2017](https://photos.app.goo.gl/JdBRDtuzEzyhRPrs9)
+- [transient_2016](https://photos.app.goo.gl/ZJjwj7Mepo1mrYgA9)
+- [transient_2015](https://photos.app.goo.gl/zQBfYkcKHaUF8dr86)
+
+---
+
+## family
+
+- [Glasgow 2019-07-11--2019-07-13](https://photos.app.goo.gl/CHwhDA7kNc2TaStR6) (family)
+- [Greece 2016-09-30--2016-10-05](https://goo.gl/photos/EpszEshpmyRb9NJ39) (family)
+
+### Gerard Breaden Madden
+
+- [Berlin, Dresden, Rathen, Konigstein](https://photos.google.com/share/AF1QipP1_FTQ5797fUT3a_H2EAtRaP_cJXXeDVsw5lcsWcMXHROHP1q8JE5Y9NVI5ckvpw?key=RE1XT19FMnB1MXZ5OEFYMVQ4WlpONGduNWFxSV9R)
