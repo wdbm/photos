@@ -2,6 +2,8 @@
 
 ## trips, adventures
 
+- [Karl stag Islay 2019-12-13--2019-12-15](https://photos.app.goo.gl/3ggrYGBjn8iogHw76)
+- [Lidl Chateaux Noir: Big on quality; Lidl on price. 2019-11-23](https://photos.app.goo.gl/6YDEgbR2gdPhhhHs5)
 - [Iain--Johanna wedding ceilidh 2019-07-06](https://photos.app.goo.gl/T9M433qN22WoK43C7)
 - [University of Glasgow Gilbert Scott Building tower 2019-06-13](https://photos.app.goo.gl/QhMiGnjKYtjYxcVe6)
 - [Vaasa 2018](https://photos.app.goo.gl/KSsF8Cy42kC8PcDz5)
