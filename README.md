@@ -34,6 +34,7 @@
 ## other
 
 - [interfaces](https://photos.google.com/share/AF1QipPuU8tHwHXU6szj_Mwk-HG5swqaXKQpAHkzWu2JMZaCyeIN66cr1HciL7h7pQgpYw?key=MlkyZi11bFJyY3RfMXVEbXl3ckF5VFBfa01TY0Z3)
+- [bogs](https://photos.app.goo.gl/99QAfpby3jVgTFW59)
 
 ---
 
