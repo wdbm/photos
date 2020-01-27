@@ -40,6 +40,7 @@
 
 ## general daily stuff
 
+- [transient_2020](https://photos.app.goo.gl/UsGcRSSZmptyBRki9)
 - [transient_2019](https://photos.app.goo.gl/UXyChAJdT7Thy9619)
 - [transient_2018](https://photos.app.goo.gl/nNd9hiwGz5CF1T6X9)
 - [transient_2017](https://photos.app.goo.gl/JdBRDtuzEzyhRPrs9)
