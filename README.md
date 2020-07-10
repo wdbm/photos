@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [Black Lives Matter Glasgow Green 2020-06-07](https://photos.app.goo.gl/sMxDi7BwEbsFq3tA9)
 - [Karl stag Islay 2019-12-13--2019-12-15](https://photos.app.goo.gl/3ggrYGBjn8iogHw76)
 - [Lidl Chateaux Noir: Big on quality; Lidl on price. 2019-11-23](https://photos.app.goo.gl/6YDEgbR2gdPhhhHs5)
 - [Iain--Johanna wedding ceilidh 2019-07-06](https://photos.app.goo.gl/T9M433qN22WoK43C7)
