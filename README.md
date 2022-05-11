@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [Dresden 2022-05](https://photos.app.goo.gl/vGg7GmNx5YNwvqhs8)
 - [Mull 2020-08-15--2020-08-22](https://photos.app.goo.gl/M49jiubUVzKbDPQx8)
 - [Black Lives Matter Glasgow Green 2020-06-07](https://photos.app.goo.gl/sMxDi7BwEbsFq3tA9)
 - [Karl stag Islay 2019-12-13--2019-12-15](https://photos.app.goo.gl/3ggrYGBjn8iogHw76)
