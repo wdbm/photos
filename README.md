@@ -25,6 +25,7 @@
 - [Crêt de la Neige 2016-07-03](https://photos.app.goo.gl/Y5qqjHVskQZuyNXaA) (CERN LTA)
 - [1P-LSD adventure 2016-06-18](https://photos.app.goo.gl/oZPPEsLzSqyZk8LZ9) (CERN LTA)
 - [Fête de l'oiseau 2016](https://photos.app.goo.gl/FT76urDvBK5ztkzcA) (CERN LTA)
+- [Caves Ouverte 2 2016](https://photos.app.goo.gl/SNNw8MXTe7LYNdMR8) (CERN LTA)
 - [Caves Ouverte 2016](https://photos.app.goo.gl/NUG22vNfFsSK1aab6) (CERN LTA)
 - [Annecy 2015-11-07](https://photos.app.goo.gl/VGscFN4Q9bL9AFWE6) (CERN LTA)
 
