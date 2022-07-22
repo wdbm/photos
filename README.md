@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [Dresden 2022-07](https://photos.app.goo.gl/PYzd9Z9kikhnYkat8)
 - [Dresden 2022-05](https://photos.app.goo.gl/vGg7GmNx5YNwvqhs8)
 - [Mull 2020-08-15--2020-08-22](https://photos.app.goo.gl/M49jiubUVzKbDPQx8)
 - [Black Lives Matter Glasgow Green 2020-06-07](https://photos.app.goo.gl/sMxDi7BwEbsFq3tA9)
