@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [Leuven 2022-09](https://photos.app.goo.gl/8ybMFZ43B9GHdnhC7)
 - [London 2022-07](https://photos.app.goo.gl/z4aquQyM5bGnbZHC8)
 - [Dresden 2022-07](https://photos.app.goo.gl/PYzd9Z9kikhnYkat8)
 - [Dresden 2022-05](https://photos.app.goo.gl/vGg7GmNx5YNwvqhs8)
