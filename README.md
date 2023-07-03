@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [Graduation 2023-06-26](https://photos.app.goo.gl/9vfnSKBiBWRPz4Bm8)
 - [Pisa and Florence 2023-03](https://photos.app.goo.gl/wUkrWpKo9RtPS4cYA)
 - [Leuven 2022-09](https://photos.app.goo.gl/8ybMFZ43B9GHdnhC7)
 - [London 2022-07](https://photos.app.goo.gl/z4aquQyM5bGnbZHC8)
