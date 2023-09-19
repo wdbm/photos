@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [Windermere 2023-07](https://photos.app.goo.gl/vQsUdSL7EKpgaCmu8)
 - [Graduation 2023-06-26](https://photos.app.goo.gl/9vfnSKBiBWRPz4Bm8)
 - [Pisa and Florence 2023-03](https://photos.app.goo.gl/wUkrWpKo9RtPS4cYA)
 - [Leuven 2022-09](https://photos.app.goo.gl/8ybMFZ43B9GHdnhC7)
