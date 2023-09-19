@@ -71,6 +71,3 @@
 - [Glasgow 2019-07-11--2019-07-13](https://photos.app.goo.gl/CHwhDA7kNc2TaStR6) (family)
 - [Greece 2016-09-30--2016-10-05](https://goo.gl/photos/EpszEshpmyRb9NJ39) (family)
 
-### Gerard Breaden Madden
-
-- [Prague 2020](https://photos.google.com/share/AF1QipNYOnt9bWAnH9oX5_UhBnX6rZdToEFD9bOZaEa6ytWGylXZaRb4Lkd9rarAfj3Jxg?key=M3dlTGVfeHVTd3hpbnJGaUhHdktkM20tU2JuZWZn)
