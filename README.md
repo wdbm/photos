@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [CERN Alumni Third Collisions 2024-02](https://photos.app.goo.gl/goFnrN4QdxH4anY18)
 - [Windermere 2023-07](https://photos.app.goo.gl/vQsUdSL7EKpgaCmu8)
 - [Graduation 2023-06-26](https://photos.app.goo.gl/9vfnSKBiBWRPz4Bm8)
 - [Pisa and Florence 2023-03](https://photos.app.goo.gl/wUkrWpKo9RtPS4cYA)
