@@ -2,6 +2,7 @@
 
 ## trips, adventures
 
+- [Dresden 2024-09](https://photos.app.goo.gl/36nTsK5kahk5riBC6)
 - [Zürich and Liechtenstein 2024-07](https://photos.app.goo.gl/xjc1jR1nz8iLB1Hq5)
 - [CERN Alumni Third Collisions 2024-02](https://photos.app.goo.gl/goFnrN4QdxH4anY18)
 - [Windermere 2023-07](https://photos.app.goo.gl/vQsUdSL7EKpgaCmu8)
