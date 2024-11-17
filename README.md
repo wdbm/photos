@@ -15,7 +15,7 @@
 - [Christmas 2021](https://photos.app.goo.gl/rBfWrMW3KxCmsxW7A)
 - [Christmas 2020](https://photos.app.goo.gl/fc5LjtoMua6Q5c2C9) 
 - [Mull 2020-08](https://photos.app.goo.gl/M49jiubUVzKbDPQx8)
-- [Black Lives Matter Glasgow Green 2020-06](https://photos.app.goo.gl/sMxDi7BwEbsFq3tA9)
+- [Glasgow Green 2020-06](https://photos.app.goo.gl/sMxDi7BwEbsFq3tA9)
 - [Christmas 2019](https://photos.app.goo.gl/weJA6rU1b215G9kF6)
 - [Karl stag Islay 2019-12](https://photos.app.goo.gl/3ggrYGBjn8iogHw76)
 - [Lidl Chateaux Noir 2019-11](https://photos.app.goo.gl/6YDEgbR2gdPhhhHs5)
