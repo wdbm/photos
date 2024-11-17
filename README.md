@@ -17,8 +17,8 @@
 - [Mull 2020-08](https://photos.app.goo.gl/M49jiubUVzKbDPQx8)
 - [Glasgow Green 2020-06](https://photos.app.goo.gl/sMxDi7BwEbsFq3tA9)
 - [Christmas 2019](https://photos.app.goo.gl/weJA6rU1b215G9kF6)
-- [Karl stag Islay 2019-12](https://photos.app.goo.gl/3ggrYGBjn8iogHw76)
-- [Lidl Chateaux Noir 2019-11](https://photos.app.goo.gl/6YDEgbR2gdPhhhHs5)
+- [Islay 2019-12](https://photos.app.goo.gl/3ggrYGBjn8iogHw76)
+- [Glasgow Lidl Chateaux Noir 2019-11](https://photos.app.goo.gl/6YDEgbR2gdPhhhHs5)
 - [Berlin and Dresden 2019-10](https://photos.app.goo.gl/yNA9ooeBXGJMGZeu9)
 - [Glasgow 2019-07](https://photos.app.goo.gl/CHwhDA7kNc2TaStR6)
 - [Iain--Johanna wedding ceilidh 2019-07](https://photos.app.goo.gl/T9M433qN22WoK43C7)
@@ -30,7 +30,7 @@
 - [Amsterdam 2016-11](https://goo.gl/photos/KuHyUTNb8gRx3LV88)
 - [Greece 2016-09/10](https://goo.gl/photos/EpszEshpmyRb9NJ39)
 
-### CERN LTA
+### CERN
 
 - [Saint-Genis-Pouilly 2016-10](https://photos.app.goo.gl/WwtMR8rxxA6fnRGP9)
 - [Annecy 2016-09](https://photos.app.goo.gl/cqczTDxGCXM6nd6z9)
@@ -40,8 +40,8 @@
 - [Crêt de la Neige 2016-07](https://photos.app.goo.gl/Y5qqjHVskQZuyNXaA)
 - [Saint-Genis-Pouilly, Bourdigny and CERN 2016-06](https://photos.app.goo.gl/oZPPEsLzSqyZk8LZ9)
 - [Fête de l'oiseau 2016](https://photos.app.goo.gl/FT76urDvBK5ztkzcA)
-- [Caves Ouverte 2016](https://photos.app.goo.gl/SNNw8MXTe7LYNdMR8)
-- [Caves Ouverte 2016](https://photos.app.goo.gl/NUG22vNfFsSK1aab6)
+- [Bourdigny and Satigny Caves Ouverte de Genève 2016](https://photos.app.goo.gl/SNNw8MXTe7LYNdMR8)
+- [Bourdigny and Satigny Caves Ouverte de Genève 2016](https://photos.app.goo.gl/NUG22vNfFsSK1aab6)
 - [Annecy 2015-11](https://photos.app.goo.gl/VGscFN4Q9bL9AFWE6)
 
 ### other
